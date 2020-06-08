@@ -26,3 +26,5 @@ https://zhuanlan.zhihu.com/p/23405248/zhuanlan.zhihu.com<br>
 俯用了頫字形。<br>
 享和亨刻意用了不同写法。<br>
 乒、乓、乜、丢、佘等字为生造出来的。乒、乓从兵省，乜从也省，丢从一从去，佘从余省。
+效果总览：<br>
+![image](https://pic1.zhimg.com/80/v2-f4555330e4d6241170a739a163e4d770_720w.jpg)
